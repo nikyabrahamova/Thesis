@@ -59,4 +59,15 @@ These photos are not just ordinary snapshots, but a testament to the strength an
 ## 21. slide
 This is the end of the video, Thank you so much for sticking with it to the end.
 
+[thesis.pdf](https://github.com/nikyabrahamova/Thesis/files/15224316/thesis.pdf)
+
+
+
+
+
+
+
+
+
+
 
