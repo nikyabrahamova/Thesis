@@ -42,8 +42,8 @@ I would like to start by saying that photography is a powerful tool in drawing a
 ![9](https://github.com/nikyabrahamova/Thesis/assets/148855906/8273b30a-6927-4b58-815a-38801bc94227)
 
 ## 10. slide
-Here you can see the campaign I created. In the practical part of my bachelor's (bačelr)  thesis I decided to use black and white photos with a red stripe. The choice of red was carefully thought out and based on several reasons. 
-One key reason is the strength of emotion associated with the colour red. I wanted to ensure (enšour) that the important elements of the text or stripe in the images would attract attention. The color red is known for its ability to evoke strong emotional reactions and capture the attention of viewers.
+Here you can see the campaign I created. In the practical part of my bachelor's  thesis I decided to use black and white photos with a red stripe. The choice of red was carefully thought out and based on several reasons. 
+One key reason is the strength of emotion associated with the colour red. I wanted to ensure  that the important elements of the text or stripe in the images would attract attention. The color red is known for its ability to evoke strong emotional reactions and capture the attention of viewers.
 Another factor is the contrast and visual impact that red offers in contrast to black and white images. This contrast helps to create interesting and aesthetic compositions.
 ![10](https://github.com/nikyabrahamova/Thesis/assets/148855906/c89c602b-8ba6-42c8-bf1c-adc0bfb35014)
 
